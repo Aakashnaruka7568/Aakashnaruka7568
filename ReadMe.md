@@ -1,4 +1,4 @@
-# 💫 HY I AM HERE🙋🏻
+# 💫 HY, I AM HERE🙋🏻
 🌱I am currently learning👨🏻‍💻...
  
 
